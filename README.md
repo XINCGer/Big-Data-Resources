@@ -4,7 +4,7 @@ Share my personal resources
 
 #书籍
 
-* 各种书~各种ppt~更新中~ <http://pan.baidu.com/s/1EaLnZ>
+* 各种书~各种ppt~更新中~ <https://pan.baidu.com/s/1c1Xp6Pa>
 
 * 机器学习经典书籍小结 <http://www.cnblogs.com/snake-hand/archive/2013/06/10/3131145.html>
 
